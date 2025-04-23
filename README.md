@@ -1,1 +1,0 @@
-# AtharvaMaind-22BSA10228-ASSESMENT2
